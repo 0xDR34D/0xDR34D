@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @0xDR34D
+- 👀 I’m interested in Cyber Security
+- 🌱 I’m currently learning Ethical Hacking
+- 💞️ I’m looking to collaborate on projects
+- How to reach me Discord:0xdr34d Twitter:0xDR34D
